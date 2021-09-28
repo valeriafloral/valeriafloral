@@ -1,6 +1,6 @@
 ### Valeria Flores Almaraz
 
-Biologist | Grad Student | Bioinormatics enthusiast | Really into plant-fungal interactions :seedling: :mushroom:  :evergreen_tree:	| 
+Biologist | Grad Student | Bioinformatics enthusiast | Really into plant-fungal interactions :seedling: :mushroom:  :evergreen_tree:	| 
 searching for leaves mycobiome :leaves: :mushroom:
 
 <!--
