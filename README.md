@@ -1,7 +1,7 @@
 ### Valeria Flores Almaraz
 
-Biologist :mexico: | MSc | Bioinformatics enthusiast | Really into plant-fungal interactions :seedling: :mushroom: :evergreen_tree:	| 
-looking for leaves mycobiome :leaves: :mushroom:
+Biologist :mexico: | PhD  student at University of Taru | Bioinformatics enthusiast | Really into plant-fungal interactions :seedling: :mushroom: :evergreen_tree:	| 
+Looking for leaves mycobiome :leaves: :mushroom:
 
 <!--
 **valeriafloral/valeriafloral** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
