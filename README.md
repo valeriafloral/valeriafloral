@@ -1,6 +1,6 @@
 ### Valeria Flores Almaraz
 
-Biologist :mexico: | PhD  student at University of Taru | Bioinformatics enthusiast | Really into plant-fungal interactions :seedling: :mushroom: :evergreen_tree:	| 
+Biologist :mexico: | PhD  student at University of Tartu | Bioinformatics enthusiast | Really into plant-fungal interactions :seedling: :mushroom: :evergreen_tree:	| 
 Looking for leaves mycobiome :leaves: :mushroom:
 
 <!--
